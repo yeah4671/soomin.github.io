@@ -1,1 +1,0 @@
-# soomin.github.io
